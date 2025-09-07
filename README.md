@@ -1,1 +1,0 @@
-# firtst_academic_sem
